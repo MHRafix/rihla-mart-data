@@ -1,1 +1,0 @@
-# rihla-mart-data
